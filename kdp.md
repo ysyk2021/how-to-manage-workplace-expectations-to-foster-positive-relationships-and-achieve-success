@@ -12,7 +12,7 @@ We will also examine common challenges in the workplace, such as working with di
 
 Ultimately, this book highlights the importance of aligning workplace expectations with personal values and goals to achieve professional success while maintaining a healthy work-life balance. By the end of this book, readers will have a comprehensive understanding of how to navigate expectations in the workplace and build positive relationships that support career growth and long-term success.
 
-MingHai Zheng is a writer based in Wuhan, China, who focuses on writing articles about workplace and management topics. He has written hundreds of articles on these topics and is dedicated to sharing his insights and experiences with others who are interested in improving their careers and their businesses.
+MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
 
 
 
