@@ -1,5 +1,3 @@
-Chapter 8: Incorporating Workplace Expectation Management into Company Policies and Practices
-=============================================================================================
 
 Incorporating workplace expectation management into company policies and practices is essential to creating a culture of mutual respect, trust, and collaboration that drives individual and organizational success. In this chapter, we will discuss the importance of incorporating workplace expectation management into company policies and practices and techniques for doing so effectively.
 

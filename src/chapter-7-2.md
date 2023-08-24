@@ -1,5 +1,3 @@
-Strategies for Identifying and Aligning Goals Effectively
-==================================================================================================================
 
 Aligning individual and organizational goals is an essential aspect of managing workplace expectations. In this chapter, we will discuss strategies for identifying and aligning goals effectively.
 

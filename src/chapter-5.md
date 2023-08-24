@@ -1,5 +1,3 @@
-Chapter 5: Managing Unmet Expectations
-======================================
 
 Managing unmet expectations is an important aspect of managing workplace expectations. In this chapter, we will discuss the importance of managing unmet expectations effectively and strategies for addressing and resolving them.
 

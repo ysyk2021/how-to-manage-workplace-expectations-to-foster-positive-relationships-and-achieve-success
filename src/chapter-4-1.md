@@ -1,5 +1,3 @@
-Overview of Effective Communication Techniques for Managing Workplace Expectations
-=====================================================================================================================================
 
 Communicating workplace expectations effectively is critical to fostering positive relationships and achieving success in the workplace. In this chapter, we will discuss effective communication techniques for managing workplace expectations.
 

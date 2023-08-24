@@ -1,5 +1,3 @@
-Chapter 3: Setting Realistic Expectations
-=========================================
 
 Setting realistic expectations is an essential aspect of managing workplace expectations. In this chapter, we will discuss the importance of setting realistic expectations in the workplace and provide techniques for doing so effectively.
 

@@ -1,5 +1,3 @@
-Chapter 4: Communicating Expectations Effectively
-=================================================
 
 Effective communication is essential to managing workplace expectations. In this chapter, we will discuss an overview of effective communication techniques for managing workplace expectations and provide techniques for clear and consistent communication.
 

@@ -1,5 +1,3 @@
-Common obstacles to managing workplace expectations
-=======================================================================================================================
 
 Managing workplace expectations is critical for fostering positive relationships and achieving success. However, there are several obstacles that individuals and organizations may encounter when trying to manage workplace expectations effectively. This chapter will explore common obstacles to managing workplace expectations and provide strategies for overcoming them.
 

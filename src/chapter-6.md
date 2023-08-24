@@ -1,5 +1,3 @@
-Chapter 6: Providing Constructive Feedback
-==========================================
 
 Providing constructive feedback is essential to managing workplace expectations. In this chapter, we will discuss the importance of providing constructive feedback in managing workplace expectations and techniques for giving and receiving feedback constructively.
 

@@ -1,5 +1,3 @@
-Benefits of Managing Workplace Expectations for Employees and the Organization
-===============================================================================================================================
 
 Understanding workplace expectations is critical to managing them effectively and fostering positive relationships in the workplace. In this chapter, we will discuss the benefits of managing workplace expectations for employees and the organization.
 

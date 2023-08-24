@@ -1,5 +1,3 @@
-Chapter 9: Overcoming Obstacles to Managing Workplace Expectations
-==================================================================
 
 Managing workplace expectations can be challenging, particularly when dealing with common obstacles that can arise. In this chapter, we will discuss the most common obstacles to managing workplace expectations and strategies for overcoming them.
 

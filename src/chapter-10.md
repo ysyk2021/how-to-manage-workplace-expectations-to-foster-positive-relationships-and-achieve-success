@@ -1,5 +1,3 @@
-Chapter 10: Implementation Strategies for Lasting Change
-========================================================
 
 Implementing lasting change in managing workplace expectations is essential to fostering positive relationships and achieving success in the workplace. In this chapter, we will discuss strategies for creating a roadmap and tracking progress to ensure that changes are implemented effectively.
 

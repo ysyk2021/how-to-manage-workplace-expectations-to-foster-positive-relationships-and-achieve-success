@@ -1,5 +1,3 @@
-Tracking Progress and Celebrating Successes
-=====================================================================================================
 
 Implementing lasting change in managing workplace expectations requires tracking progress and celebrating successes. In this chapter, we will discuss strategies for implementing lasting change effectively.
 

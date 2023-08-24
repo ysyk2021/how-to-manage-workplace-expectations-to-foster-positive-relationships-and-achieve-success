@@ -1,5 +1,3 @@
-Importance of Providing Constructive Feedback in Managing Workplace Expectations
-============================================================================================================================
 
 Providing constructive feedback is an essential aspect of managing workplace expectations. In this chapter, we will discuss the importance of providing constructive feedback in managing workplace expectations.
 

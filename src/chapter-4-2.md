@@ -1,5 +1,3 @@
-Techniques for Clear and Consistent Communication
-====================================================================================================
 
 Communicating expectations effectively is an essential aspect of managing workplace expectations. In this chapter, we will discuss techniques for communicating expectations clearly and consistently.
 

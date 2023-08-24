@@ -1,5 +1,3 @@
-Strategies for Addressing and Resolving Unmet Expectations
-==================================================================================================
 
 Managing unmet expectations is an essential aspect of managing workplace expectations. In this chapter, we will discuss strategies for addressing and resolving unmet expectations effectively.
 

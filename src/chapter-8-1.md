@@ -1,5 +1,3 @@
-Importance of incorporating workplace expectation management into company policies and practices
-===============================================================================================================================================================================================
 
 Incorporating workplace expectation management into company policies and practices is critical for fostering positive relationships, achieving success, and promoting a positive workplace culture. This chapter will explore the importance of incorporating workplace expectation management into company policies and practices.
 

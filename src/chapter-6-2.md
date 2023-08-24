@@ -1,5 +1,3 @@
-Techniques for giving and receiving feedback constructively
-=======================================================================================================
 
 Providing constructive feedback is a critical aspect of managing workplace expectations. Feedback helps employees to understand how they are performing, what they can improve, and how they can contribute to the organization's goals. This chapter will explore techniques for giving and receiving feedback constructively.
 

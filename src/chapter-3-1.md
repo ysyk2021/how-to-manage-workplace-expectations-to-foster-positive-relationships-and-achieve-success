@@ -1,5 +1,3 @@
-Importance of Setting Realistic Expectations in the Workplace
-========================================================================================================
 
 Setting realistic expectations is critical to fostering positive relationships and achieving success in the workplace. In this chapter, we will discuss the importance of setting realistic expectations and strategies for doing so.
 

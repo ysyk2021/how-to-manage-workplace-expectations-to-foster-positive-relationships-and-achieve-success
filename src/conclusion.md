@@ -1,4 +1,3 @@
-# Conclusion
 
 Managing workplace expectations is essential to fostering positive relationships and achieving success in the workplace. In this book, we have explored strategies and techniques for setting realistic expectations, communicating effectively, overcoming obstacles, and adapting to change.
 

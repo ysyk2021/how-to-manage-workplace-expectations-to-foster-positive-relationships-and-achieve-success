@@ -1,5 +1,3 @@
-Techniques for Incorporating Workplace Expectation Management into Company Policies and Practices
-================================================================================================================================================================================================
 
 Incorporating workplace expectation management into company policies and practices is an essential step towards fostering positive relationships and achieving success in the workplace. In this chapter, we will discuss techniques for incorporating workplace expectation management into company policies and practices effectively.
 

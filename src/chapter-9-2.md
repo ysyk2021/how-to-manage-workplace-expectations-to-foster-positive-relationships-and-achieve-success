@@ -1,5 +1,3 @@
-Strategies for Overcoming These Obstacles
-=============================================================================================================
 
 Managing workplace expectations can be challenging, as there are often obstacles that arise along the way. In this chapter, we will discuss strategies for overcoming these obstacles and fostering positive relationships in the workplace.
 

@@ -1,5 +1,3 @@
-Creating a Roadmap for Managing Workplace Expectations for Positive Relationships and Success
-=======================================================================================================================================================
 
 Successfully managing workplace expectations requires more than just understanding the principles and strategies discussed in this book. In this chapter, we will discuss implementation strategies for creating a roadmap to manage workplace expectations for positive relationships and success.
 

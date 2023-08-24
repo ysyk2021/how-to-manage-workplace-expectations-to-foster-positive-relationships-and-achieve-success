@@ -1,5 +1,3 @@
-Definition of Workplace Expectations
-=====================================================================================
 
 Workplace expectations refer to the set of standards, goals, and responsibilities that are established between colleagues, superiors, and subordinates in a workplace setting. These expectations can encompass a wide range of factors, including:
 

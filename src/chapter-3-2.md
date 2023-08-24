@@ -1,5 +1,3 @@
-Techniques for Setting Realistic Expectations
-========================================================================================
 
 Setting realistic expectations is critical to managing workplace expectations effectively and fostering positive relationships in the workplace. In this chapter, we will discuss techniques for setting realistic expectations.
 

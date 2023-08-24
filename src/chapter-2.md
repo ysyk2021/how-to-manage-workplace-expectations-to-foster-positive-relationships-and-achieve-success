@@ -1,5 +1,3 @@
-Chapter 2: Understanding Workplace Expectations
-===============================================
 
 Definition of workplace expectations
 ------------------------------------
