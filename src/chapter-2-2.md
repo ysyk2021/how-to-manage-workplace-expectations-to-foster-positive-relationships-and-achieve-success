@@ -1,5 +1,4 @@
-Chapter 6: Benefits of Managing Workplace Expectations for Employees and the Organization
-=========================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Managing workplace expectations is not just about setting guidelines; it's about creating an environment that benefits both employees and the organization as a whole. This chapter explores the numerous advantages of effectively managing workplace expectations for all stakeholders involved.
 

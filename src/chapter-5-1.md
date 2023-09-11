@@ -1,5 +1,4 @@
-Chapter 10: Importance of Managing Unmet Expectations Effectively
-=================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the realm of managing workplace expectations, addressing and resolving unmet expectations is a critical aspect that should not be overlooked. This chapter explores the significance of managing unmet expectations effectively and how it contributes to fostering positive relationships and achieving overall success within an organization.
 

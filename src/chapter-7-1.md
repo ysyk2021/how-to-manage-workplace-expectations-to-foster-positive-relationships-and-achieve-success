@@ -1,5 +1,4 @@
-Chapter 7: Importance of Aligning Individual and Organizational Goals in Managing Workplace Expectations
-========================================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Aligning individual and organizational goals is a fundamental aspect of managing workplace expectations effectively. This chapter explores the crucial role that this alignment plays in fostering positive relationships and achieving success within the workplace.
 

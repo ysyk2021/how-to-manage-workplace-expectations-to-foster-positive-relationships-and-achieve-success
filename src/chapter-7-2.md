@@ -1,5 +1,4 @@
-Chapter 9: Strategies for Identifying and Aligning Goals Effectively
-====================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Effective goal identification and alignment are essential components of managing workplace expectations successfully. This chapter explores strategies to help organizations and individuals identify goals and align them in a way that fosters positive relationships and drives success.
 

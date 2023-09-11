@@ -1,5 +1,4 @@
-Chapter 5: Overview of Effective Communication Techniques for Managing Workplace Expectations
-=============================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Effective communication is the cornerstone of managing workplace expectations. In this chapter, we will explore a range of communication techniques and strategies that can help foster positive relationships and achieve success by ensuring everyone is on the same page.
 

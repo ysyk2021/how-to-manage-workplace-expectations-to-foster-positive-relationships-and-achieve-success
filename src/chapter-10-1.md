@@ -1,5 +1,4 @@
-Chapter 13: Creating a Roadmap for Managing Workplace Expectations for Positive Relationships and Success
-=========================================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Creating a roadmap for managing workplace expectations is essential to guide organizations and individuals in fostering positive relationships and achieving success. This chapter outlines a comprehensive plan to navigate the journey of effectively managing workplace expectations.
 

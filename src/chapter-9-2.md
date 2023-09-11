@@ -1,5 +1,4 @@
-Chapter 14: Strategies for Overcoming Workplace Expectation Obstacles
-=====================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 While managing workplace expectations is crucial for fostering positive relationships and achieving success, various obstacles may hinder this process. In this chapter, we explore effective strategies for overcoming these obstacles and maintaining a harmonious work environment.
 

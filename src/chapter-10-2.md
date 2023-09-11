@@ -1,5 +1,4 @@
-Chapter 12: Tracking Progress and Celebrating Successes
-=======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the journey to manage workplace expectations successfully, tracking progress and celebrating successes play a pivotal role. This chapter explores the importance of monitoring progress, recognizing achievements, and how these practices contribute to fostering positive relationships and achieving success within an organization.
 

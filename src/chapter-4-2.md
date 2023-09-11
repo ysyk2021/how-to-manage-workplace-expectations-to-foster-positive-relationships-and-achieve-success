@@ -1,5 +1,4 @@
-Chapter 5: Techniques for Clear and Consistent Communication
-============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Effective communication is at the heart of managing workplace expectations, nurturing positive relationships, and achieving success. This chapter explores various techniques for fostering clear and consistent communication within the workplace to ensure that expectations are well understood and aligned.
 

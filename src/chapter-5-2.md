@@ -1,5 +1,4 @@
-Chapter 8: Strategies for Addressing and Resolving Unmet Expectations
-=====================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the journey to manage workplace expectations successfully, it's essential to recognize that unmet expectations can arise despite careful planning and communication. This chapter explores effective strategies for identifying, addressing, and resolving unmet expectations, ensuring that they don't derail positive relationships and hinder success.
 

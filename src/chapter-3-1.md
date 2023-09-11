@@ -1,5 +1,4 @@
-Chapter 11: Importance of Setting Realistic Expectations in the Workplace
-=========================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Setting realistic expectations is a fundamental component of managing workplace dynamics effectively. This chapter delves into the significance of establishing achievable and reasonable expectations and how it contributes to fostering positive relationships and achieving success within an organization.
 
